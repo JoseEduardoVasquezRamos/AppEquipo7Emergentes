@@ -1,0 +1,1 @@
+# AppEquipo7Emergentes
